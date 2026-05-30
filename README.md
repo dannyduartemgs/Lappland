@@ -12,6 +12,8 @@ Requested by Kiri Zeuto on Discord, Lappland from Arknights comes to ROR2 as a s
 <img width="499" height="403" alt="lappland" src="https://github.com/user-attachments/assets/8bba499b-addb-4a9d-b2c4-3b38bd783482" /> <br />
 
 
+Enjoy!
+
 If you wish to contact me to request a skin here's my discord: dannyduartemgs <br />
 
 Credits: <br />
